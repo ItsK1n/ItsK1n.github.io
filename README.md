@@ -1,2 +1,1 @@
-<img class="Danny" src="https://pbs.twimg.com/media/EmcXJ-2VMAE4dEz.jpg">
-<a href="https://trollface.dk/">Click Here if Gay</a>
+<a href="https://www.youtube.com/watch?v=dQw4w9WgXcQ&ab_channel=RickAstley">Click Here</a>
